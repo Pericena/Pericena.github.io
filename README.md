@@ -1,0 +1,2 @@
+# Pericena.github.io
+Despues de algun tiempo aprenderas la diferencia entre dar la mano y socorrer a un alma,  y aprenderas que amar no significa apoyarse y que compañia no siempre significa seguridad.  Comenzaras a aprender que los besos no son contratos, ni regalos,  ni promesas…comenzaras a aceptar tus derrotas con la cabeza erguida y  la mirada al frente, con la gracia de un niño y no con la tristeza de un adulto y aprenderas  a construir hoy todos tus caminos,porque el terreno de mañana es incierto para los proyectos  y el futuro tiene la costumbre de caer en el vacio.
